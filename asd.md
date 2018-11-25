@@ -13,13 +13,16 @@ Click on the skin name to download.
 ![](https://osu.ppy.sh/ss/12165830)
 
 # [elohere](https://drive.google.com/open?id=1G6D_Di0it0PNjXJDZ6K21ut7_1nyV7H-)
-![]https://osu.ppy.sh/ss/12207186)
+![](https://osu.ppy.sh/ss/12207186)
 
-# [- dumii aesthetic -](https://www.dropbox.com/s/s1vvmc342myw4q7/-dummy%20aesthetic%20-.osk?dl=0)
-![](https://osu.ppy.sh/ss/12004410)
+# [mathi-ensalada](https://drive.google.com/open?id=1Db_BWr80sfnjFkObqZJSoAlkdHGntG0g)
+![](https://osu.ppy.sh/ss/12207221)
 
-# [- # ! 草壁 _kusakabe](https://mizaru.s-ul.eu/9PWkyMQc) 
-![](https://osu.ppy.sh/ss/11838360)
+# [-+ Seoul v9 Personal Skin V3](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
+![](https://osu.ppy.sh/ss/12207233)
+
+# [Seoul++ 16-9](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
+![](https://osu.ppy.sh/ss/12207248)
 
 
 
