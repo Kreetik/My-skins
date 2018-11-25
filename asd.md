@@ -1,6 +1,6 @@
 # All of my skins
 
-Click on the skin name to download.
+Click on the skin name to download..
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
 # [+1wwsou2netnesonya3](https://drive.google.com/open?id=1bsNRFd2a7Uapk_wm-Ne23AIO5A9v4I8l)
