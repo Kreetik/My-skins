@@ -1,10 +1,10 @@
-# RyuK super rad main skins compilation
+# All of my skins
 dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a skin not listed here yet that I need to add. 
 
 
 
 Click on the skin name to download.
-# Some of the skins RyuK uses might be private or unfinished and may not be listed
+# Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
 # [+1wwsou2netnesonya3](https://drive.google.com/open?id=1bsNRFd2a7Uapk_wm-Ne23AIO5A9v4I8l)
 ![](https://osu.ppy.sh/ss/12207147)
