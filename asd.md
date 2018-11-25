@@ -1,7 +1,4 @@
 # All of my skins
-dm me on discord @Mizaru#0112 or in chat @gabe_owo / @snowedcoffee if there's a skin not listed here yet that I need to add. 
-
-
 
 Click on the skin name to download.
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
@@ -23,6 +20,9 @@ Click on the skin name to download.
 
 # [Seoul++ 16-9](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
 ![](https://osu.ppy.sh/ss/12207248)
+
+
+
 
 
 
