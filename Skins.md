@@ -15,7 +15,7 @@ Click on the skin name to download.
 # [mathi-ensalada](https://drive.google.com/open?id=1Db_BWr80sfnjFkObqZJSoAlkdHGntG0g)
 ![](https://osu.ppy.sh/ss/12207221)
 
-# [-+ Seoul v9 Personal Skin V3](https://drive.google.com/open?id=1yDVYkrWk6mXR5fs9XBc5JPRlXP6j1gsV) 
+# [-+ Seoul v9 Personal Skin V3](https://drive.google.com/file/d/1yDVYkrWk6mXR5fs9XBc5JPRlXP6j1gsV/view) 
 ![](https://osu.ppy.sh/ss/12207233)
 
 # [Seoul++ 16-9](https://drive.google.com/open?id=1ZPbhH9RdchAn1L926fuIWa0ygsuYHIQ0) 
