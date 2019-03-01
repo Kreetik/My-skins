@@ -3,6 +3,9 @@
 Click on the skin name to download.
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
+# [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
+![](https://osu.ppy.sh/ss/11966641)
+
 # [+1wwsou2netnesonya3](https://drive.google.com/open?id=1bsNRFd2a7Uapk_wm-Ne23AIO5A9v4I8l)
 ![](https://osu.ppy.sh/ss/12207147)
 
