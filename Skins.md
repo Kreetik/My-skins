@@ -3,6 +3,9 @@
 Click on the skin name to download.
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
+# [-colorbog](https://www.dropbox.com/sh/hmsw5x8y9evhl1y/AABtyrpk_ekIRe6IGdXrB0wxa?dl=0&preview=-+colorbog.osk)
+![](https://osu.ppy.sh/ss/12786189)
+ 
 # [azer8midnight chitanda edit no followpoints](http://www.mediafire.com/file/nn9gwk1bk1ejnsy/azer8midnight+chitanda+edit.osk)
 ![](https://osu.ppy.sh/ss/11966641)
 
