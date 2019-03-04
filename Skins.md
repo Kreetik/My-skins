@@ -3,6 +3,9 @@
 Click on the skin name to download.
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
+# [-!Sadness skin]( http://bit.ly/2VvBLuB)
+![](https://osu.ppy.sh/ss/12806705)
+
 # [-colorbog](https://www.dropbox.com/sh/hmsw5x8y9evhl1y/AABtyrpk_ekIRe6IGdXrB0wxa?dl=0&preview=-+colorbog.osk)
 ![](https://osu.ppy.sh/ss/12786189)
  
