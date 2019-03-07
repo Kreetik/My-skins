@@ -3,6 +3,9 @@
 Click on the skin name to download.
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
+# [- morgan](https://snowy.s-ul.eu/WZb002pF)
+![](https://osu.ppy.sh/ss/12554288)
+
 # [-!Sadness skin]( http://bit.ly/2VvBLuB)
 ![](https://osu.ppy.sh/ss/12806705)
 
