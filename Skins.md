@@ -3,6 +3,10 @@
 Click on the skin name to download.
 # Некоторые мои скины могут быть приватными или просто не залиты сюда, так что извиняйте, если не найдете тут нужный вам
 
+# [tranquil sublimity](https://t.co/3vQ8wz4Hzl)
+![](https://pbs.twimg.com/media/D1a07CvUwAAk65M.jpg:large)
+
+
 # [- morgan](https://snowy.s-ul.eu/WZb002pF)
 ![](https://osu.ppy.sh/ss/12554288)
 
